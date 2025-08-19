@@ -1,1 +1,1 @@
-# Bit-of-War---PS2-EDITION
+# Bit-of-War-PS2-EDITION
